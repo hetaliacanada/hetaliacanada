@@ -1,12 +1,18 @@
 <p align="center"
 <a href="https://hits.sh/github.com/pantera-00/hits/"><img alt="Hits" src="https://hits.sh/github.com/pantera-00/hits.svg?label=mreows&color=9f9f9f"/></a>
 
+<p align="center"
+
+yes i know i am censored,, pt hates me
 
 <p align="center"
 <p><img src="https://files.catbox.moe/ee3u5x.jpg" height="300" alt="0c29f0f8f4122e8379a4158298b7fa49"></p>
 <p align="center"
 <p><img src="https://files.catbox.moe/rhz19t.webp" alt="https://files.catbox.moe/0aaqnb.jpg"></p>
 
+<p align="center"
+
+/!\  busy status probably means im asleep 
 
 <p align="center"
 
